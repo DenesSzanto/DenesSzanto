@@ -1,7 +1,7 @@
 - 👋 Hello, I’m @DenesSzanto
-- 👀 I’m interested
+- 👀 I’m interested in toki pona among others
 - 🌱 I’m currently learning in school
-- 📫 How to reach me: don't
+- 📫 How to reach me: @denesszanto on discord
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I know each and every last one of them
 
